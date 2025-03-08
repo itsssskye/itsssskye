@@ -1,5 +1,5 @@
 hiii, im its.ssskye, you can call me skye!
-im a video editor, noob music composer, 3d artist, artist, programmer, developer, and a minecraft enthusiast
+im a video editor, rookie music composer, rookie 3d artist, rookie artist, programmer, game developer, youtuber, and sound designer.
 you can find out more about me here: https://youtu.be/AtotChIA0No
 check out my lib here: https://itsssskye.carrd.co
 
