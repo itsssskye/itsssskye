@@ -1,5 +1,7 @@
 Hi! I'm its.ssskye, you can call me Skye, I have a lot of skills, but I like to call them interests to not sound like I'm boasting, if it helps here's a list of my ~~skills~~ interests:
+
 What I'm pretty good at - Video Editing, Writing, Programming, Game Developing
+
 What I'm a real rookie at - 3D Art, Art, Thumbnail Designing, Sound Producing, Music Composing
 
 I'm also a human if that's interesting, and I'm open to dms!
